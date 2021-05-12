@@ -7,7 +7,7 @@ We are avid meat eaters, but these vegetarian tacos are one of our go-tos in
 Peru. If you can make the pickles with Peruvian aji amarillo, please do.
 
 - Roast cauliflower
-- Roasted chilis and Japanese pickled vegetables
+- Roasted chilis and Japanese pickled daikon
 - Caramelized red onions
 - Guacamole
 - Yogurt
